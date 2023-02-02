@@ -20,7 +20,7 @@
 
 **请加小助手微信入群**
 
-<img width="255" alt="Screen Shot 2023-02-02 at 10 10 26 AM" src="https://github.com/yjhannah/Music-Journal-Club/blob/main/WeChat.jpg">
+<img width="255" alt="Screen Shot 2023-02-02 at 10 16 26 AM" src="https://github.com/yjhannah/Music-Journal-Club/blob/main/WeChat.png">
 
 
 ## 日程安排
